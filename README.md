@@ -1,5 +1,5 @@
 # Suhas Dasari
-# 🐦 [X](https://twitter.com/suhasdasari) | 💼 [LinkedIn](https://www.linkedin.com/in/suhasdasari)
+Connect with me here -> # 🐦 [X](https://twitter.com/suhasdasari) | 💼 [LinkedIn](https://www.linkedin.com/in/suhasdasari)
 (Open for New Roles)
 
 ## About Me
