@@ -1,7 +1,7 @@
 # Suhas Dasari
 (Open for New Roles)
 
-## About Me**
+## About Me
 Currently**: Student Engagement Officer @George Mason University, Pursuing Master's in Information Systems, Graduating by MAy 2025
 MyStory**: "GOAL - Dedicated to the betterment of mankind, I will continuously learn, innovate, and help others, regardless of whether I am a leader or a follower"
 
