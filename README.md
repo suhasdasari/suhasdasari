@@ -1,4 +1,4 @@
-# Suhas Dasari
+# 🐦 [Twitter](https://twitter.com/suhasdasari) | 💼 [LinkedIn](https://www.linkedin.com/in/suhasdasari) | Suhas Dasari
 (Open for New Roles)
 
 ## About Me
